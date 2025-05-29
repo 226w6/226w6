@@ -2,5 +2,5 @@
 
 ### 　　　　　　　　　　　　　　226w6　︵　kenji　　✦
 ### 　　　　　　　　　　　 　　[ [twt](https://x.com/ihflulz) ]　　𓏼　　[ [atabook](https://226w6.atabook.org/) ]
-### 　　　　　　　　　　　　　[click on me 4 rentry ! wip]
+### 　　　　　　　　　　　　  　 　[click 4 discord pfp !](https://guns.lol/226w6)
 ![banner](https://files.catbox.moe/dgb2l3.png)
